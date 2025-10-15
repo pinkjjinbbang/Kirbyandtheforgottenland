@@ -1,1 +1,1 @@
-별의 커비 디스커버리 Nintendo Switch 2 edition + 스타리 월드 많이 사랑해주세요
+별의 커비 Wii 디럭스 많이 사랑해주세요
